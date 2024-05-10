@@ -1,0 +1,1 @@
+https://rugcheckersolana.com/
